@@ -15,5 +15,5 @@ We create professional website templates that don't compromise on ethics, access
 
 Because a professional online presence shouldn't mean selling your soul—or your visitors' data.
 
-https://mosaiquestudio.dev
+https://studiomosaique.net
 
